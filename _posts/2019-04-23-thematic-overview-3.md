@@ -1,0 +1,47 @@
+---
+layout: post
+title:  "Nouman Ali Khan - Description thématique 3 - Ayat el birr"
+author: "RouteDeLaSpiritualité"
+---
+
+> لَّيْسَ الْبِرَّ أَن تُوَلُّوا وُجُوهَكُمْ قِبَلَ الْمَشْرِقِ وَالْمَغْرِبِ وَلَٰكِنَّ الْبِرَّ مَنْ آمَنَ بِاللَّهِ وَالْيَوْمِ الْآخِرِ وَالْمَلَائِكَةِ وَالْكِتَابِ وَالنَّبِيِّينَ وَآتَى الْمَالَ عَلَىٰ حُبِّهِ ذَوِي الْقُرْبَىٰ وَالْيَتَامَىٰ وَالْمَسَاكِينَ وَابْنَ السَّبِيلِ وَالسَّائِلِينَ وَفِي الرِّقَابِ وَأَقَامَ الصَّلَاةَ وَآتَى الزَّكَاةَ وَالْمُوفُونَ بِعَهْدِهِمْ إِذَا عَاهَدُوا ۖ وَالصَّابِرِينَ فِي الْبَأْسَاءِ وَالضَّرَّاءِ وَحِينَ الْبَأْسِ ۗ أُولَٰئِكَ الَّذِينَ صَدَقُوا ۖ وَأُولَٰئِكَ هُمُ الْمُتَّقُونَ - 2:177
+
+-- 1:53 --
+> وَآتَى الْمَالَ عَلَىٰ حُبِّهِ
+
+Attardons nous sur ce passage de la aya: "oua ata el mala 3ala 7oubihi". "3ala 7oubihi" peut avoir plusieurs significations. La première étant "vous aimez l'argent". La deuxième signification peut être "basé sur leur amour pour Allah, ils ont donné". Ils ont compris qu'ils devaient combattre leurs envie d'avoir toujours plus. Notre envie d'avoir toujours plus est toxique et peut enlever notre bonté. C'est la raison pour laquelle nous devons contrôler cela. La manière de la controller est de donner. Plus on est généreux, plus il est facile pour nous d'être bon. Il s'agit même d'une possible thérapie: si tu te sens plus méchant, plus énervé donne ce qui t'est cher pour te purifier. Dans d'autre parties du Coran Allah nous dit "lan tanalou el birra hata tounfiqou fi ma touhiboun" ce qui se traduit par "Vous n'atteindrez pas la bonté avant de vous être séparé de ce que vous aimez". Cependant il ne s'agit pas uniquement d'argent. Ca peut être ta nouvelle paire de sneakers que tu as achté et que tu aimes ou peu importe vraiment, même ton temps! A qui donner cela? A "dhawi el qorba" qui se traduit par "les proches" et ça peut être des cousins, des parents, des oncles, des amis, des connaissances dont tu connais le besoin. Quand tu donnes à qui que ce soit, tu le fais pour toi et non pas pour la personne à qui tu donnes. L'Islam nous enseigne qu'être généreux est un acte égoïste. On peut faire le rapprochement avec "tawassaw bil haq" que nous avons vu dans sourat al Asr car leur donner, c'est te rendre service à toi même. Le prophète - 'alayhi essalat oua sallam - a dit "ma naqassamaloun min sadaqa" ce qui se traduit par "la richesse ne baisse pas lorsque tu donnes en charité" et Allah dit dans le Coran "Quoi que tu donnes, te seras remboursé". Ce qu'Allah nous dit est que la chose la plus importante est d'être bons dans sa foi et non avoir une barbe ou un hijab ou apprendre entierement le Coran par coeur. C'est indivisible et c'est dans ton coeur. La deuxième chose que Allah mentionne comme condition pour etre bon est de donner de la richesse malgré ton amour pour la richesse et tu le donnes à des personnes qui te sont proches car les personnes autour de toi sont celles avec qui il est le plus dur d'intéragir, ils sont les moins impressionés et les plus ingrats.
+
+"dhawi el 9orba oua el yatama" se traduit par "les proches et les orphelins". Cependant, nous n'avons aucune idée de qui sont les orphelins. Nous devons connaitre d'autres familles dans notre communauté afin d'apprendre qui est orphelins. Ce n'est pas écrit sur leur front qu'ils sont orphelins. La mosqué est l'endroit idéal pour se connaitre et sociabiliser dans notre communauté pour savoir quelle sont les personnes dans le besoin. On ne peut pas appliquer cette aya dans notre vie si on ne fait pas l'effort d'apprendre à connaitre les autres.
+
+Ensuite, Allah nous dit "Oua el masakin". "Masakin" provient de deux mots en arabe "masaka" et "sakana". Il s'agit des personnes qui sont en difficultés et qui sont bloqués dans cette situation. Par exemple une personne qui est handicapé et ne peut pas trouver de travail
+
+Ensuite Allah nous dit "Wa ibna sabil" qui se traduit par "les enfants du chemin/de la route" ce qui signifie "les voyageurs". Cette expression désigne les personnes qui ont voyagé pendant longtemps. Dans une société islamique, l'industrie hotelliere ne se porterait pas aussi bien qu'aujourd'hui car les habitants se presse et font un compétition pour savoir qui va accueillir les voyageurs chez eux. En tant que musulmans nous devons être accueillants. Les personnes qui viennent chez nous sont un cadeau pour nous. A l'époque l'air de repos était la mosquée.
+
+Puis Allah nous dit "Wa sa-iline" qui se traduit par "ceux qui demandent". Après avoir mentionné une longue liste de personne qui ne demandent pas avant de leur donner, Allah mentionne les personnes qui demandent. Nous nous devons d'être une culture qui donne aux personnes dans le besoin sans même qu'ils demandent. Demander devrait être le dernier recourt pour les musulmans dans le besoin. 
+
+"Wa firriqab" sont les personnes dont les cous sont enchaînées ce qui fait référence aux personnes en condition d'esclavage ou emprisonnées ou qui croule sous les dettes.
+
+"Wa aqama salat" sont les personnes qui effectuent la prière. Même si on pense à la prière comme étant la première action d'un bon musulman, on note que ce n'est pas le premier acte cité par Allah dans cette aya. La première chose cité par Allah est la conviction, la croyance et d'où elle provient. A quel point te soucis tu des autres du à ta croyance? A quel point donnes tu de tes biens même si tu y es attaché?
+
+"Wa ata zakat". Cette partie ne fait pas référence à la zakat mais à quelque chose de différent. Il ne s'agit pas du minimum légal mais bien d'être une personne généreuse tout le temps. Et bien entendu, donner la zakat et faire la prière.
+
+# Plusieurs facette de la bonté
+
+Dans plusieurs culture nous trouvons deux definitions opposées de la bonté: la bonté religieuse et la bonté morale.
+La *bonté religieuse* est le fait que si c'est une femme, elle porte le Hijab, elle prend des cours de sciences islamiques, elle mémorise le Coran, elle prie etc. Si c'est un homme, il possède une longue barbe, il se vetie de manière traditionnelle, prie très souvent, prie tahadjud, vérifie que la viande est Hallal etc. 
+La *bonté morale*, n'inclue pas toutes ces pratiques et ces choix de vie. Il s'agit uniquement d'être quelqu'un de respectueux, honnête et bon envers les autres.
+Ce qui arrive en général c'est que des groupes de personnes commencent à se former autour de ces deux définitions de la bonté. Les personnes qui se proclament de la bonté religieuse se disent "Ces personnes ne prient pas, elle ne porte pas le Hijab etc" et les personnes se revendiquant de la bonté morale se disent "Ces personnes là font la prière et vont au Hajj tous les ans mais ce sont des voleurs et des corrompus". Et ces deux groupes de personnes commencent à se détester. Cette aya (LAQUELLE?) join la bonté morale et la bonté religieuse dans une seule définition de la bonté. Tout musulman qui pense que ces deux bontés sont séparables ne comprend pas la definition de la bonté selon Allah.
+
+"wa aqama salat oua ata zakat" est une figure de style utilisée dans le Coran. Il s'agit d'une définition des lois de l'Islam car la moitié du devoir du musulman est envers Allah - aqama essalat - et l'autre moitié consiste à être bon envers les autres - oua ata zakat. Ces deux actions sont un service que l'on rend à nous-même. Ca couvre le spectre complet du musulman car si on veut pouvoir faire la prière on doit avoir une intention pure, des habits qui sont pures, se purifier à travers le wuduh, manger Hallal. Si on veut donner la zakat, notre argent doit être gagné par des moyens Hallal. De ce fait, "wa aqama salat oua ata zakat" prend en compte tout le lifestyle du musulman.
+
+Ensuite Allah passe à quelque chose d'autre en parlant de quelque chose de bien plus large "wa el moufouna". Il s'agit du premier pluriel utilisé dans cette aya. "moufouna" se traduit par "fulfill". "Wal moufouna bi 3ahdihim ida 3ahadou" signifie "ceux qui tiennent leur promesses lorqu'ils en font". Quand deux personnes se mettent d'accord en comprenant chqcun ce que veut l'autre, alors il faut, en tant que musulman, tenir ses promesses. "3aaaahadou" vient de l'arabe "mou3ahada" qui est un accord entre deux parties lorqu'elles comprennent toutes les deux les tenants et aboutissants de l'accord. Dans l'Islam, nous nous devons d'être des personnes qui communiquent ses idées de manière claire et être sûr que l'autre partie comprennent ce qu'on attend d'eux. Par exemple, lorsque tu prête de l'argent, il est préférable de l'écrire. L'utilisation du pluriel pour "moufouna" est essentiel car nous pouvons être une société qui tient ses promesses si et seulement si chacun d'entre nous tient ses promesses. Il faut savoir dire NON lorsqu'on ne peut pas faire quelque chose.
+
+
+"wa sabirina fil ba'sa'i oua dhara'i wa 7ina el ba's" se traduit par "et par dessus tout, les personnes qui sont perseverantes, patientes constantes dans les moments difficiles".
+  * "wa dhara" se traduit par "ils restent constants même en période de difficulté". el dhara fait aussi référence à la difficulté économique.
+  * "wa 7ina el ba's". Même au combat, tu tiens tes promesses.
+  * le "in" dans "sabirin" se traduit par "et par dessus tout"
+
+Le but du partage de cette aya est double:
+  1. Montrer la différence entre la bonté morale et la bonté religieuse et expliquer comment elles sont liés dans cette aya.
+  2. La bonté aux yeux d'Allah commence par la foi et la bonté envers les autres et ensuite envers les obligations que l'on a envers Allah. Il s'agit de mettre les priorités là où elles sont.
