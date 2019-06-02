@@ -4,7 +4,7 @@ title:  "Nouman Ali Khan - Description thématique 4 - Sourat Louqman"
 author: "RouteDeLaSpiritualité"
 ---
 
-# Surat luqman (31) - Ayat 12 à 19
+# Surat luqman (31) - Ayat 12
 
 Dans ce post, nous allons étudier sourat Luqman des ayats 12 à 19
 
@@ -16,6 +16,12 @@ Dans ce post, nous allons étudier sourat Luqman des ayats 12 à 19
 يَا بُنَيَّ أَقِمِ الصَّلَاةَ وَأْمُرْ بِالْمَعْرُوفِ وَانْهَ عَنِ الْمُنكَرِ وَاصْبِرْ عَلَىٰ مَا أَصَابَكَ ۖ إِنَّ ذَٰلِكَ مِنْ عَزْمِ الْأُمُورِ - 31:17
 وَلَا تُصَعِّرْ خَدَّكَ لِلنَّاسِ وَلَا تَمْشِ فِي الْأَرْضِ مَرَحًا ۖ إِنَّ اللَّهَ لَا يُحِبُّ كُلَّ مُخْتَالٍ فَخُورٍ - 31:18
 وَاقْصِدْ فِي مَشْيِكَ وَاغْضُضْ مِن صَوْتِكَ ۚ إِنَّ أَنكَرَ الْأَصْوَاتِ لَصَوْتُ الْحَمِيرِ - 31:19
+
+# Aya 12
+
+> وَلَقَدْ آتَيْنَا لُقْمَانَ الْحِكْمَةَ أَنِ اشْكُرْ لِلَّهِ ۚ وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِ ۖ وَمَن كَفَرَ فَإِنَّ اللَّهَ غَنِيٌّ حَمِيدٌ - 31:12
+
+> And We had certainly given Luqman wisdom [and said], "Be grateful to Allah ." And whoever is grateful is grateful for [the benefit of] himself. And whoever denies [His favor] - then indeed, Allah is Free of need and Praiseworthy.
 
 Pour chaque aya il y a des lessons que nous allons expliquer dans cet article.
 
